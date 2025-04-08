@@ -2,7 +2,7 @@
 - 👀 I’m interested in Design
 - 🌱 I’m currently learning AI Agents automations
 - 💞️ I’m looking to collaborate on it
-- 📫 How to reach me isacco@proton.me
+- 📫 How to reach me ---
 - 😄 Pronouns: he/him
 - 👅 Phonetic pronuciation: Ee-sah-koh  
 
